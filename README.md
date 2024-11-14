@@ -1,7 +1,5 @@
 ## Hi! 
 
-CS Graduate Student @ the University of Michigan
-
 I love computer security and education. Teaching others is sick 🤘
 
 <i>This is how I be fr:</i>
